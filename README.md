@@ -2,7 +2,7 @@
 
 ## Visualização temporal
 
-![Série temporal](https://photos.app.goo.gl/shy8w5RY8GuWLp6S7)
+![Série temporal](https://lh3.googleusercontent.com/9xg87nA7nIuNv6KsiNispCSaZrz51I2x7gpoK9UjLhpF-49ek69PU8lJvWAVRsjIXbqOU8M4NYnsQTid145PlAirK9A1Xl77GIBt8UmBepddBvMcDA6MrnKrtvWr2tkSp9sS4hN6LQ=w697-h777-no)
 
 
 
