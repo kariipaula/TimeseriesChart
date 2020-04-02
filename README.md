@@ -2,7 +2,7 @@
 
 ## Visualização temporal
 
-![Série temporal](https://drive.google.com/file/d/1udCo-4P8yDSZJYEnt8StGbWgMsa0rBRw/view?usp=sharing)
+![Série temporal](https://photos.app.goo.gl/shy8w5RY8GuWLp6S7)
 
 
 
